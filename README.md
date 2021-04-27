@@ -2,9 +2,6 @@
 
 Contact
 
-DCL Education
-
-
 
 
 Intro
